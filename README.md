@@ -1,1 +1,0 @@
-# Weday-Design-System
